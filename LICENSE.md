@@ -1,4 +1,4 @@
-
+Enhance your IPVanish experience with IPVanish secure App: auto-connect & L2TP-support, the #1 app. Includes auto-connect and L2TP-support for a safer and more private online
 
 
 
